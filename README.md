@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shanz404
-- 👀 I’m interested in . Hacking 
+- 👀 I’m interested in . making money 
 - 🌱 I’m currently learning . Supply chain 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...0779853220
